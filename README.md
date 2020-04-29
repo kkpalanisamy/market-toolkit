@@ -1,5 +1,5 @@
 
-
+Reddit Thread: https://www.reddit.com/r/StockMarket/comments/g8t1sy/massive_open_source_collection_of_stock_market/
 
 
 
